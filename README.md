@@ -1,1 +1,0 @@
-# Fhewn_Anket_Veri_Tabani
